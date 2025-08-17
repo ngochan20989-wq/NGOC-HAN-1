@@ -1,5 +1,10 @@
-# 💬 Chatbot Anh Lập Trình
+# 💬 Cô Ngọc Hân
 
-Chương trình chatbot được tạo ra từ Anh Lập Trình (https://pyan.vn/)
+Trường Tiểu Học Phước Tân
 
+Phước Tân
+
+Đồng Nai
+
+0975 619 776
 
